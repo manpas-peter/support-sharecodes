@@ -36,4 +36,4 @@
 개인정보보호정책의 변경 사항은이 페이지에 게시 될 때 적용됩니다.
 
 이 개인정보보호정책에 대해 궁금한 사항이 있으면 문의하십시오.
-manpas.goods@manpas.co.kr
+manpas-contact1@manpas.co.kr

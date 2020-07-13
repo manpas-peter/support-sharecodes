@@ -50,4 +50,4 @@ on this page. You are advised to review this Privacy Policy periodically for any
 are effective when they are posted on this page.
 
 If you have any questions about this Privacy Policy, please contact us.
-manpas.goods@manpas.co.kr
+manpas-contact1@manpas.co.kr
